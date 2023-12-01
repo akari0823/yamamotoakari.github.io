@@ -1,0 +1,1 @@
+# yamamotoakari.github.io
